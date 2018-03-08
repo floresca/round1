@@ -1,1 +1,1 @@
-This side is the light
+This is the light side
